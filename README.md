@@ -11,4 +11,4 @@ If I’m sitting with friends please be respectful of their boundaries and prono
 <img width="540" height="200" alt="image" src="https://github.com/user-attachments/assets/cc00b5d0-208b-4586-aef1-e883198d8cd6" />
 
 ︶⊹︶︶  ྀི ︶︶⊹︶︶⊹︶︶  ྀི ︶︶⊹︶︶⊹︶
-<img width="690" height="491" alt="image" src="https://github.com/user-attachments/assets/25cb08cb-5e5b-410b-9ec3-29a6c9cbfd1f" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/25cb08cb-5e5b-410b-9ec3-29a6c9cbfd1f" />
