@@ -1,7 +1,3 @@
-<img width="140" height="100" alt="image" src="https://github.com/user-attachments/assets/a3090901-fd19-4636-8117-75db5663fa58" />
-
-
-
 ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟
 
 Hello! I’m Nico / Lotus I go by they/them !!
